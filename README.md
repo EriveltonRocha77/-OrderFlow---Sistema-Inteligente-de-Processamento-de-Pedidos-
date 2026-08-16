@@ -148,12 +148,11 @@ Erivelton Rocha
 
 GitHub: @EriveltonRocha77
 
-LinkedIn: Seu LinkedIn
 
 ⭐ Se gostou, deixe uma estrela!
 Feito com ❤️
 
-text
+
 
 
 
